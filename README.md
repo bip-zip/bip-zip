@@ -1,4 +1,2 @@
-![image](https://user-images.githubusercontent.com/60959655/154711753-6ca7f6c1-0d1d-4c1c-9402-e95d151c8ff8.png)
-
-
-
+![programmer](https://user-images.githubusercontent.com/60959655/154712323-1ac57ddd-4ede-4b0b-8b02-f1eac93e904e.gif)
+If you were my CSS to my HTML. I'd !important your everyline. I don't care what W3C thinks.
